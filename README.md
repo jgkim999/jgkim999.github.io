@@ -1,1 +1,0 @@
-# jgkim999.github.io
